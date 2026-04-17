@@ -1,2 +1,2 @@
 # luiz-barsi-case-study
-Este estudo apresenta a trajetória de Luiz Barsi, maior investidor pessoa física do Brasil. De origem humilde, ele defende investir em empresas perenes e boas pagadoras de dividendos, focando renda previdenciária com disciplina, paciência e reinvestimento. Também promove a educação financeira como transformação social.
+Este estudo resume a trajetória de Luiz Barsi, que, vindo de uma origem humilde, tornou-se o maior investidor pessoa física do Brasil. Sua estratégia central, denominada “Ações Garantem o Futuro”, prioriza a disciplina, a visão de longo prazo e o foco em dividendos como fonte de renda passiva.
